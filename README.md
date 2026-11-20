@@ -7,4 +7,4 @@ https://drive.google.com/drive/folders/1XP3vwgVslIP7dCjufa24Jk4AXojWPphj
 Quick External presentation:
 https://drive.google.com/drive/folders/1rf6BxmH6I32sYyKrvTaOdzJmbokAlsrb
 
-https://bdren.zoom.us/j/97392110351?pwd=me35ajG3xsmEbgQFbLXf68GTM20bYL.1
+https://bdren.zoom.us/j/95826821509?pwd=YYTZrfrlCywtPwUFEogSpahTJvah4C.1
